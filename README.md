@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 🔭 I’m Beren Irgat
+- 🔭 My name is Beren 
 - 🌱 I’m a fershman in Bilkent University.
 - 👯 I recently turned 18
 - 🤔 My birthday is 21st of August
